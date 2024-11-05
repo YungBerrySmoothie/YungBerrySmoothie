@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @YungBerrySmoothie
+- 👀 I’m interested in Legos 
+- 🌱 I’m currently learning Scratch
+- 💞️ I’m looking to collaborate on anything so that I can learn
+- 📫 How to reach me discord yung_berry_smoothie
+- 😄 Pronouns: male
+- ⚡ Fun fact: I'm a community drop out try to go back to school
