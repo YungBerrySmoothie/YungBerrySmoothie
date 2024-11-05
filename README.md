@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on anything so that I can learn
 - 📫 How to reach me discord yung_berry_smoothie
 - 😄 Pronouns: male
-- ⚡ Fun fact: I'm a community drop out try to go back to school
+- ⚡ Fun fact: I'm a community collage drop out try to go back to school
